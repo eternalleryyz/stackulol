@@ -1,1 +1,1 @@
-#Hii my name is stacku! Or call me Yoonie if you want. I love crocheting and playing W my friends, BTW I'm a white lily cookie 1# BIGGEST simp ever!! (I have a ita bag of her😥) also I have a gf so don't be too freaky from me💔
+A
